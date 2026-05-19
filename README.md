@@ -4,4 +4,6 @@ I am a President Scholar at the University Of Maryland, College Park pursuing a 
 
 Check out the pinned repositories to view some of my projects! 
 
+If any of these projects attract your interest, feel free reach out at kevinlyons247@gmail.com
+
 Thanks for checking my profile out :)
